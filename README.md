@@ -9,7 +9,7 @@ Email Me 👉 ✉️ **sachinmali8866@gmail.com** For Collaboration/Project or A
 - 🤔 **I’m looking for help with:** real-world data analytics workflows
 - 💬 **Ask me about:** Collaboration, Tech Support
 
-- ⚡ **Fun fact:** I Love Tech and Tech Love Me
+
 
 
 
