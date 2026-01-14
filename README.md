@@ -1,4 +1,4 @@
-111111111111# 💫 Hi , I'm sachin
+1# 💫 Hi , I'm sachin
 **As piring Data Analyst | Passionate about turning raw data into insights | Building real-world analytics projects to grow my skills every day.**
 
 Email Me 👉 ✉️ **sachinmali8866@gmail.com** For Collaboration/Project or Anything Else. 😊
